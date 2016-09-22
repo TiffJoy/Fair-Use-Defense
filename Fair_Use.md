@@ -23,7 +23,7 @@ There are several ways Pogo clears this factor.
 *  Many of the clips have the speed altered, separating them from the original form.
 
 ##### Market Effect
-Pogo's remixed music video in no way will effect Disney's market. He has >$6 million views on his video *Bloom* after 5 years of being online. He could potentially make money through adertisements, but his video is not going to stop people from watching a full Disney movie, going to Disney World, or buying their merchandise. If it has any effect it would be a positive one, featuring several movies in one video could pique someones curiousity about a movie they have yet to see. 
+Pogo's remixed music video in no way will effect Disney's market. He has >6 million views on his video *Bloom* after 5 years of being online. He could potentially make money through advertisements, but his video is not going to stop people from watching a full Disney movie, going to Disney World, or buying their merchandise. If it has any effect it would be a positive one, featuring several movies in one video could pique someones curiousity about a movie they have yet to see. 
 
 The characters and partial tunes in *Bloom* are still recognizable as Disney's property, but as a whole, the music video has more differences than similarities. The style of music is nothing like any of the musical numbers Disney has written for their movies and the video clips occur in such small, sporatic pieces that the plot of the movie is hardly shown.
 
