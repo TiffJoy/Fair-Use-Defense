@@ -40,5 +40,6 @@ Let's recap the four factors of fair use and where *Bloom* stands with them:
 | __Amount & Substantiality__ |  |  | x |  
 | __Market Effect__ |  |  | x |  
 
-My ruling: Pogo's music video *Bloom* is...
+My ruling:
+Pogo's music video *Bloom* is...
 #### Fair Use!
