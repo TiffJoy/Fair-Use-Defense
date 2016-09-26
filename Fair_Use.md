@@ -32,6 +32,7 @@ Pogo's remixed music video in no way will effect Disney's market. He has >6 mill
 The characters and partial tunes in *Bloom* are still recognizable as Disney's property, but as a whole, the music video has more differences than similarities. The style of music is nothing like any of the musical numbers Disney has written for their movies and the video clips occur in such small, sporatic pieces that the plot of the movie is hardly shown.
 
 Let's recap the four factors of fair use and where *Bloom* stands with them:  
+
 |  | __Not fair Use | Not Clear | Definitely Fair Use__ |  
 |---|---|---|---|  
 | __Purpose & Character__ |  |  | x |  
