@@ -35,7 +35,7 @@ Pogo's remixed music video in no way will effect Disney's market. He has >6 mill
 
 It is possible that Disney might be interested in making mashups of their own soundtracks to be used as advertisement or potentially sell. Pogo's video doesn't represent the image that Disney wants to send to people, and it also doesn't misrepresent or harm Disney's reputation. In short, if Disney wanted to be in the music mashup business, Pogo's video still wouldn't have much of an impact on that market. His expressions and techniques are unique to him, he just used Disney's music as a foundation and inspiration for his work, in the same way most other artists create new pieces.
 
-##### Decision
+### Decision
 
 The characters and partial tunes in *Bloom* are still recognizable as Disney's property, but as a whole, the music video has more differences than similarities. The style of music is nothing like any of the musical numbers Disney has written for their movies and the video clips occur in such small, sporatic pieces that the plot of the movie is hardly shown.
 
