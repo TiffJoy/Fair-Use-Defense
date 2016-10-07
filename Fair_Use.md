@@ -41,7 +41,7 @@ The characters and partial tunes in *Bloom* are still recognizable as Disney's p
 
 Let's recap the four factors of fair use and where *Bloom* stands with them:  
 
-|  | Not fair Use | Not Clear | Definitely Fair Use |  
+|  | Not fair Use | Not Clear | Fair Use |  
 |---|---|---|---|  
 | __Purpose & Character__ |  |  | x |  
 | __Nature of the Work__ |  | x |  |  
