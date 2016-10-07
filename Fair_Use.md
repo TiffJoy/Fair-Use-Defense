@@ -33,7 +33,7 @@ A very important factor is if the use will deprive or undermine the original wor
 
 Pogo's remixed music video in no way will effect Disney's market. He has >6 million views on his video *Bloom* after 5 years of being online, so he could potentially make money through advertisements, but his video is not going to stop people from watching a full Disney movie, going to Disney World, or buying their merchandise. If it has any effect it would be a positive one, featuring several movies in one video could pique someones curiousity about a movie they have yet to see.
 
-It is possible that Disney might be interested in making mashups of their own soundtracks to be used as advertisement or potentially sell. Pogo's video doesn't represent the image that Disney wants to send to people, and it also doesn't misrepresent or harm Disney's reputation. In short, if Disney wanted to be in the music mashup business, Pogo's video still wouldn't have much of an impact on that market. His expressions and techniques are unique to him, he just used Disney's music as a foundation and inspiration for his work, in the same way most other artists create new pieces.
+It is possible that Disney might be interested in making mashups of their own soundtracks to be used as advertisement or potentially sell. Pogo's video doesn't represent the image that Disney wants to send to people, but it also doesn't misrepresent or harm Disney's reputation. In short, if Disney wanted to be in the music mashup business, Pogo's video still wouldn't have much of an impact on that market. His expressions and techniques are unique to him, he just used Disney's music as a foundation and inspiration for his work, in the same way most other artists create new pieces.
 
 ### Decision
 
